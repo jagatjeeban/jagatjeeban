@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jagatjeebanmaharana@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/](https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/)
+- 📄 My portfolio [https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/](https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/)
 
 - ⚡ Fun fact **I am a noob.**
 
