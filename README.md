@@ -9,7 +9,7 @@
 
 - 📄 My portfolio [https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/](https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/)
 
-- ⚡ Fun fact **I am a noob.**
+- ⚡ Fun fact **I am a noob.** 😄
 
 
 <h3 align="left">Languages and Tools:</h3>
