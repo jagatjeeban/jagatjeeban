@@ -5,11 +5,10 @@
 
 - 👨‍💻 All of my projects are available at [github.com/jagatjeeban](https://github.com/jagatjeeban)
 
-- 📫 How to reach me **jagatjeebanmaharana@gmail.com**
+- 📫 How to reach me jagatjeebanmaharana@gmail.com
 
-- 📄 My portfolio [linkedin.com/jagat-jeeban-maharana](https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/)
+- 📃 My portfolio [linkedin.com/jagat-jeeban-maharana](https://www.linkedin.com/in/jagat-jeeban-maharana-0a85b0168/)
 
-- ⚡ Fun fact **I am a noob.** 😄
 - 📄 My current Resume [Jagat's Resume](https://drive.google.com/file/d/1QEmg6uh6B1wT8pVyRpKzcEHAV6zzMlcH/view?usp=sharing)
 
 
